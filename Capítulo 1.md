@@ -9,3 +9,5 @@ Todo lo que mencionó Destino era correcto. El Caos, quien fuera el origen de to
 Tras la muerte de sus ancestros, cada uno cedió de sí ante Cielo, quien ahora, en el apogeo del reino, era siglos de historia en un mismo sujeto.
 -	Ahora que conoces todo del Cosmos, Cielo, podrás con tu gran sabiduría reconocer cuánto podrás interceder sobre lo que te he contado. El destino no puede ni debe modificarse, pero está ahora en tus manos cambiar las variables que consideres a bien alterar, por el bien de todos a los que proteges. – Depositó una mano sobre el hombre el aún joven Emperador. – He sido testigo de tu Omnipotencia, puedo irme en paz.
 Cielo atesoró en su corazón cada palabra que profirió su amigo antes de marcharse eternamente. Fueron varios los días más en los que el soberano detúvose a meditar, sabía que la calma que habitaba en el reino sería ensombrecida por una pena. Había cosas entre las que le confirió Destino, que habría deseado no conocer jamás.
+
+© 2026 Beria Colwell. Todos los derechos reservados.
