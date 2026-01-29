@@ -1,9 +1,7 @@
 <center>
-
 # El Altar al Cielo
+*Por: Beria Colwell*
 ## Capítulo 1
-### Por: Beria Colwell
-
 </center>
 
 
