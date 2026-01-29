@@ -1,3 +1,12 @@
+<center>
+
+# El Altar al Cielo
+## Capítulo 1
+### Por: Beria Colwell
+
+</center>
+
+
 Érase una vez, en un lugar donde los siglos fácilmente podrían confundirse con segundos, un reino con un soberano lleno de bondad, gran sabiduría y absoluta magnificencia. Cielo era el nombre del Gran Soberano. 
 
 Llegó de lejanas tierras un día a palacio un hombre con pinta envejecida, dotado de la tranquilidad que solo posee alguien que ha vivido lo suficiente. Destino, aquel hombre, habría vivido más que cualquier otro en ese reino. Se detuvo entonces frente al trono del Excelentísimo; este sonrió al verle y esperó a que pronunciara el motivo de su visita. 
